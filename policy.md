@@ -1,6 +1,6 @@
 Privacy Policy
 
-Effective date: July 30, 2021
+Effective date: April 20, 2023
 
 This page informs you of our policies regarding the collection, use and disclosure of personal data when you use our Service and the choices you have associated with that data. This Privacy Policy is managed by Privacy Policy Generator.
 
